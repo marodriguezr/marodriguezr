@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+welcome to my formal github, explore with freedom :b
+
+primary account: [@migonos0](https://www.github.com/migonos0)
